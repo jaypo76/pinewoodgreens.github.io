@@ -29,7 +29,7 @@ Local staff are available to assist with pool pass application inquiries, archit
 | Tuesday | 9:30 am – 4:00 pm |
 | Wednesday | 9:30 am – 4:00 pm |
 | Thursday | 9:30 am – 4:00 pm |
-| Friday | 9:30 am – 4:00 pm |
+| Friday | 8:00 am – 2:00 pm |
 
 <br>The mailing address for the local association office is:
 
